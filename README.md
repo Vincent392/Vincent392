@@ -6,6 +6,6 @@
 - works on https://github.com/K-Launcher/K-L I'm the only dev
 - random fact:
 I have windows 7 installed on a Thinkpad x230 w/ all the drivers
-### - any version of windows newer then 8.1 is unbased
+### any version of windows newer then 8.1 is unbased
 I dont have that much else to say.
 
