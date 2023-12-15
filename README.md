@@ -7,9 +7,10 @@
 - Java, Shell Script, Batch and C# dev
 - Learning C
 - Open Source is based
+
 Most Played game on steam:
 Kerbal Space Program
 ## Currently playing:
 ### Hλlf-Life, Hλlf-Life: Blue Shift
-## Will Play after:
+## Will Play:
 ## Hλlf-Life ²
