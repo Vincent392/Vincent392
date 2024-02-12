@@ -11,6 +11,7 @@
 Most Played game on steam:
 Kerbal Space Program
 ## Currently playing:
-### Hλlf-Life, Hλlf-Life: Blue Shift
+### ~~Hλlf-Life, Hλlf-Life: Blue Shift~~ (on hold till 25th anniversary bugs are ironed out)
+### The Elder Scrolls IV: Oblivion and The Elder Scrolls V: Skyrim Special Edition
 ## Will Play:
-## Hλlf-Life ²
+## Hλlf-Life ² (possibly)
