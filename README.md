@@ -1,4 +1,4 @@
-## H
+### H
 - Website: https://vincent392.github.io/
 - Irish
 - Autistic ADHD
@@ -13,7 +13,6 @@
 Most Played game on steam:
 Kerbal Space Program
 ## Currently playing:
-### ~~Hλlf-Life, Hλlf-Life: Blue Shift~~ (on hold till 25th anniversary bugs are ironed out)
-### The Elder Scrolls IV: Oblivion, The Elder Scrolls V: Skyrim Special Edition, The Elder Scrolls III: Morrowind (OpenMW), The Elder Scrolls II: Daggerfall (DFU) and Lego Star Wars: The Skywalker Saga
+### Hλlf-Life, The Elder Scrolls IV: Oblivion, The Elder Scrolls V: Skyrim Special Edition, The Elder Scrolls III: Morrowind (OpenMW), The Elder Scrolls II: Daggerfall (DFU), Lego Star Wars: The Skywalker Saga, Lego The Lord of The Rings ~~one does not simply~~, Lego Worlds and The Simpsons: Hit & Run
 ## Will Play:
-## Hλlf-Life ² (possibly)
+### Hλlf-Life ², Hλlf-Life: Opposing Force, Hλlf-Life ²: Episode One and Hλlf-Life ²: Episode 2
