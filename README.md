@@ -13,8 +13,8 @@
 Most Played game on steam:
 Kerbal Space Program
 ## Currently playing:
-### Hλlf-Life: Opposing Force, The Elder Scrolls IV: Oblivion, The Elder Scrolls V: Skyrim Special Edition, The Elder Scrolls III: Morrowind (OpenMW), The Elder Scrolls II: Daggerfall (DFU), Lego Star Wars: The Skywalker Saga, Lego The Lord of The Rings ~~one does not simply~~, Lego Worlds and The Simpsons: Hit & Run
+### Hλlf-Life: Opposing Force, The Elder Scrolls IV: Oblivion, The Elder Scrolls V: Skyrim Special Edition, The Elder Scrolls III: Morrowind (OpenMW), The Elder Scrolls II: Daggerfall (DFU), Lego Star Wars: The Skywalker Saga, Lego Worlds and The Simpsons: Hit & Run
 ## Will Play:
-### Hλlf-Life ², Hλlf-Life ²: Episode One and Hλlf-Life ²: Episode 2
+### Hλlf-Life ², Hλlf-Life ²: Episode One, Hλlf-Life ²: Episode 2 and Lego The Hobbit
 ## Finished playing:
-### Hλlf-Life, Hλlf-Life: Blue Shift
+### Hλlf-Life, Hλlf-Life: Blue Shift, Lego The Lord of The Rings ~~one does not simply~~
