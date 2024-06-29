@@ -9,7 +9,7 @@
 - Open Source is based
 
 [![Vincent392's GitHub stats](https://github-readme-stats.vercel.app/api?username=Vincent392&show=reviews,discussions_started,discussions_answered,prs_merged,prs_merged_percentage)](https://github.com/anuraghazra/github-readme-stats)
-[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=Vincent392&layout=donut)](https://github.com/anuraghazra/github-readme-stats)
+[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=Vincent392&langs_count=20&layout=donut)](https://github.com/anuraghazra/github-readme-stats)
 
 Most Played game on steam:
 Kerbal Space Program
